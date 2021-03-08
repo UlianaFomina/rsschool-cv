@@ -1,4 +1,3 @@
-
 1. Uliana Fomina.
 2. mobile phone: +375336758599; email: 6758599@gmail.com.
 3. I want to become a good programmer and invent smth new in this world.
