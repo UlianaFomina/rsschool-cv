@@ -1,1 +1,1 @@
-# https://UlianaFomina.github.io/rsschool-cv/cv
+# https://UlianaFomina.github.io/rsschool-cv/
